@@ -1,0 +1,1 @@
+# naigote1020.github.io
